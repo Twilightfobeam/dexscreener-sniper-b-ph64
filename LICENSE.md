@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with premium Token Sniper for dexscreener sniper bot | arbitrage-opportunities & rug-pull-detection, the #1 dexscreener sniper bot. Includes
 
 
 
